@@ -1,3 +1,6 @@
 # Donald Trump Communication Analysis Twitter
 awejWENFE
 EWFWEFW
+ergerg
+rgerger4twh45hgq5g4ttytrhtrh
+657656435567877565434567
